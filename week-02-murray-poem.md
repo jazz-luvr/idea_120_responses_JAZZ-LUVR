@@ -8,4 +8,3 @@ https://www.youtube.com/watch?v=NHCCRrlcJQc
 
 ![murraypoem2](https://github.com/user-attachments/assets/7cc93319-70c2-4c35-afa0-56f1ceae6725)
 ![murraypoem1](https://github.com/user-attachments/assets/5d6c6fc1-9f74-4381-b5a1-ab16ba6449a2)
-![image](https://github.com/user-attachments/assets/1ce137c4-e57f-4416-8424-27f56298e5c5)
